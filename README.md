@@ -6,7 +6,7 @@ Software Developer
 
 I'm Junior Dev Leaning About Code for 3 years
 
-*   🌍  I'm based in Thailand, Nakhon RatchasimaNai
+*   🌍  I'm based in Thailand, Nakhon Ratchasima
 *   ✉️  You can contact me at [jakkhapong.wp.com](mailto:jakkhapong.wp@gmail.com)
 *
 *   ### Skills 
